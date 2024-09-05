@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **kritigaur@gmail.com**
 
-- ⚡ Fun fact **i think i am opt**
+- ⚡ Fun fact **i think i am op**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
